@@ -1,1 +1,1 @@
-[CostaLamasPablo_CreaciónReutilizaciónDifusiónContenidos - Documentos de Google.pdf](https://github.com/pablocoosta/CostaPablo_CreacionReutilizacionDifusionContenidos/files/9673023/CostaLamasPablo_CreacionReutilizacionDifusionContenidos.-.Documentos.de.Google.pdf)
+https://drive.google.com/file/d/1mTzuDBXExTF29i-DiK5Yzv3TtDz08o7_/view?usp=sharing
